@@ -1,2 +1,2 @@
 # Curricula
-Presentation, Handouts, and other school-style resources for kids and adults
+Presentations, Handouts, and other school-style resources for kids and adults
